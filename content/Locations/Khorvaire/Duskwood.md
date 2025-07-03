@@ -1,0 +1,1 @@
+[[Quests/Shadow Beast]] location

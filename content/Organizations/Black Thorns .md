@@ -1,0 +1,1 @@
+Kind of under the thumb of [[Organizations/Abyssal Order]]

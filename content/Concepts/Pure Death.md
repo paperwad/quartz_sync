@@ -1,0 +1,1 @@
+Somehow diffrent from regular death
